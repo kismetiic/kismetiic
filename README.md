@@ -1,1 +1,1 @@
-- hi im kismet. i dont know how to use github. im making this an international problem for everyone. no i wont stop. good luck!
+- hi im kismet. i dont know how to use github. im making this everyone elses problem. no i wont stop. good luck!

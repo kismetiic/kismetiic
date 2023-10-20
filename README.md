@@ -1,1 +1,1 @@
-- hi im kismet. i dont know how to use github. im making this everyone elses problem. no i wont stop. good luck!
+- hi! im kismet. i only vaguely somewhat know what i'm doing, some of the time. most of the time i don't. any complaints should be sent via smoke signal. thanks for stopping by!
